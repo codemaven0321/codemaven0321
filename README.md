@@ -1,8 +1,8 @@
 # Contact Me
 
 
-- **Skype:** codemaven0321@gmail.com
-- **Skype:** live:.cid.6087976e41b624f7
+- **Gmail:** codemaven0321@gmail.com
+- **Skype:** live:.cid.f5ac91f29c33e1c6
 - **Telegram:** https://t.me/codemaven0321
 - **Discord:** codemaven0321
 
